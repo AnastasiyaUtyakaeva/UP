@@ -1,1 +1,1 @@
-![Спицын](/Desktop/UP2/qwe.jpg)
+![С](/Users/anastasia_04/desktop/UP2/123.jpg)
