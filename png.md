@@ -1,1 +1,1 @@
-![Спицын](/Desktop/UP/qwe.jpg)
+![Спицын](/Desktop/UP2/qwe.jpg)
